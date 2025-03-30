@@ -2,7 +2,7 @@
 
 ## Legajo 105752-2
 
-![Mi Foto](https://photos.google.com/photo/AF1QipMpH9dJe4A_LAHOycvo7qYjTNIMl3YwNZSV3Tqw)
+![Mi Foto](https://photos.fife.usercontent.google.com/pw/AP1GczNXLtsTmuDusc5yTahv9FWtGVHuEX8-ixuJcsyr0C4AQp85X0zClioE=w959-h1279-s-no?authuser=0)
 
 
 Hola, mi nombre es Jose.
