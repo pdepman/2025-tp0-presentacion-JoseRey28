@@ -2,7 +2,7 @@ https://github.com/pdepman/2025-tp0-presentacion-JoseRey28/blob/main/presentacio
 
 ## Legajo 105752-2
 
-! [image](https://photos.fife.usercontent.google.com/pw/AP1GczNXLtsTmuDusc5yTahv9FWtGVHuEX8-ixuJcsyr0C4AQp85X0zClioE=w959-h1279-s-no?authuser=0)
+![image](https://github.com/pdepman/2025-tp0-presentacion-JoseRey28/blob/main/IMG_20190402_121051640_HDR.jpg?raw=true)
 
 
 Hola, mi nombre es Jose.
