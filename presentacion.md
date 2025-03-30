@@ -1,4 +1,4 @@
-https://github.com/pdepman/2025-tp0-presentacion-JoseRey28/blob/main/presentacion.md# Jose Manuel Rey
+# Jose Manuel Rey
 
 ## Legajo 105752-2
 
